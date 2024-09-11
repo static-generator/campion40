@@ -6,3 +6,6 @@ Wishlist of Places to go
 1. Australia
 2. Japan
 3. Paris
+
+My Social Medias:
+-[Instagram](https://www.instagram.com/ustariskirk/?hl=en)
