@@ -3,6 +3,6 @@
 >- Magarao, Mariners Village Phase 1
 ---
 Wishlist of Places to go
-1. Australia\
+1. Australia
 2. Japan
 3. Paris
