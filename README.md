@@ -6,6 +6,7 @@ Wishlist of Places to go
 1. Australia
 2. Japan
 3. Paris
+   
 Interests
 1. Singing
 2. Boxing
