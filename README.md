@@ -15,7 +15,7 @@ Interests
 My Social Medias:
 -[Instagram](https://www.instagram.com/ustariskirk/?hl=en)
 
-![image](https://lh3.googleusercontent.com/a/ACg8ocJlYKlWrbFr796Ljwl14VttwvxsQ2zAQk5fJW6pU3DK1JhJDww=s288-c-no)             ⠀       ⠀⠀⠀⠀⠀
-![image](https://github.com/user-attachments/assets/b6010f55-8479-4eb4-b208-658bd5c1763e)
-![image](https://github.com/user-attachments/assets/75c15915-144e-41ce-ab8e-ce48dc31e534)
+   ![image](https://lh3.googleusercontent.com/a/ACg8ocJlYKlWrbFr796Ljwl14VttwvxsQ2zAQk5fJW6pU3DK1JhJDww=s288-c-no)             ⠀       ⠀⠀⠀⠀⠀
+   ![image](https://github.com/user-attachments/assets/b6010f55-8479-4eb4-b208-658bd5c1763e)
+   ![image](https://github.com/user-attachments/assets/75c15915-144e-41ce-ab8e-ce48dc31e534)
 
